@@ -55,7 +55,7 @@
 <ins> vita coco </ins>
 
 
-|   “Xiaoxin! (Watch out!)” My mom darts out to grab my arm as I skim the curb of the sidewalk. A truck roars past.
+|    “Xiaoxin! (Watch out!)” My mom darts out to grab my arm as I skim the curb of the sidewalk. A truck roars past.
 
 |   “I wasn’t going to walk, you know.” The light turns green, and our family crosses as one. Shenzhen's streets are littered with crumpled newspapers, fast food wrappers, and cigarette butts. Just as quickly as they are discarded, these articles of pedestrian life are flattened by jelly slippers, Nike sneakers, polished loafers, and motorbikes rattling on and off the sidewalks, swerving wildly to avoid even wilder taxi drivers and trucks.
 
