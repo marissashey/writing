@@ -1,7 +1,8 @@
-## contents 
+writing projects 
 
 0. [ark](#ark)
 1. [qianhai bay](#qianhaibay)
+
 
 # <ins> ark </ins> 
 
@@ -14,9 +15,9 @@
 
             water drowns.
             a flood does not discriminate
-                stops not for C)hild nor C)ritter
+                stops not for child nor critter
             the best, distressed, obsessed, and all the rest
-                are just another in the scorning eyes of M)other.
+                are just another in the scorning eyes of mother.
 
         
 
