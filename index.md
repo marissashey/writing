@@ -6,10 +6,10 @@ and statistics and professional writing & communication (pwc) minors.
 
 
 
-click here to see some of 
+* click here to see some of 
   [my writing](writing.md)
             
-and 
+* and 
  [go back](http://github.com/tapiocabub) to github for code.
 
            
