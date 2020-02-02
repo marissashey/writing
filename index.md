@@ -1,3 +1,7 @@
+
+
+![image](files/Users/mika/Desktop/IMG_0439)
+
 # m. a. shey
 ## writer & programmer
 
