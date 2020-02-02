@@ -47,16 +47,16 @@
             i drift off, scooping meat to mouth,
             smiling, sunburnt, satisfied
        
-       
-            
+
+\         
 <ins> vita coco </ins>
 
 
-“Xiaoxin! (Watch out!)” My mom’s hand darts out to grab my arm as I approach the curb of the sidewalk. A truck roars past. I look to her, annoyed. 
+“Xiaoxin! (Watch out!)” My mom darts out to grab my arm as I skim the curb of the sidewalk. A truck roars past.
 
-“I wasn’t going to walk, you know.” When the light turns green, our family crosses as one. The streets of Shenzhen are littered with crumpled newspapers, fast food wrappers, and cigarette butts. Just as quickly as they are discarded, these articles of pedestrian life are flattened by jelly slippers, Nike sneakers, polished loafers, and motorbikes rattling on and off the sidewalks, swerving wildly to avoid even wilder taxi drivers and trucks.
+“I wasn’t going to walk, you know.” The light turns green, and our family crosses as one. Shenzhen's streets are littered with crumpled newspapers, fast food wrappers, and cigarette butts. Just as quickly as they are discarded, these articles of pedestrian life are flattened by jelly slippers, Nike sneakers, polished loafers, and motorbikes rattling on and off the sidewalks, swerving wildly to avoid even wilder taxi drivers and trucks.
 
-It is a Tuesday in July when my parents, brother, and I agreed that we couldall do with some time from the cloying congestion of the city. The bay beckons. We decide to take the subway there.
+It is a Sunday in July when my parents, brother, and I agreed that we couldall do with some time from the cloying congestion of the city. The bay beckons. We decide to take the subway there.
 
 My mother’s vice grip on my forearm doesn’t loosen until we descend the subway entrance and enter the white-tiled underground station, which, unlike the city above ground, is spotless. Two uniformed men stand guard and watch us place our bags on the baggage scanner. They give our picnic basket a cursory glance but spend longer inspecting Dad’s work briefcase. Then, they wave us through the security check and further into the station. Dad produces four subway tokens that send us past the turnstiles and to the main train platform. Men and women in crisp work clothes part briskly around us, eyes glazed.
 
@@ -76,6 +76,7 @@ For weeks, my brother and I chuck shaved, store-bought coconuts onto the paved s
 
 
 
+\
 <ins> the wilhelm scream</ins>
 
 In West Berlin’s Charlottenburg, people chase the ephemeral. Charlottenburg is three and four-dollar-sign restaurants, luxury jewelry stores and bridal boutiques, and new, mostly uninhabited apartments furnished with Scandinavian style dining tables and ceiling chandeliers. Before the summer sun sets at 9PM, senior citizens traipse about the district with unleashed, pure-bred dogs in tow, wearing carefully chosen, discrete shirts and shoes that whisper wealth more slyly than any scream.
