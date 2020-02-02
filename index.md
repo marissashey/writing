@@ -15,7 +15,7 @@ and statistics and professional writing & communication (pwc) minors.
                 * you (ostensibly) got here from my github.
 
                 * 
-                [go back](https://github.com/tapiocabub)
+                [go back](http://github.com/tapiocabub)
 
            
            
