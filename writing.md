@@ -1,5 +1,10 @@
+## contents 
+
+0. [poetry](#poetry)
+1. [essays](#essays)
+
 # poetry
-            01) <u>ark</u>
+            01) ark
 
             water dances.
             it surges into salt + foam to marry th=m
@@ -17,8 +22,7 @@
 
 
 
-
-            02) <u>qianhai bay</u>
+            02) qianhai bay
 
             down a path of trees and beach umbrellas
             a man and a boy sell coconuts
@@ -50,4 +54,5 @@
             smiling, sunburnt, satisfied
 
 
-
+# essays 
+coming soon :) 
