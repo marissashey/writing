@@ -1,3 +1,1 @@
-pieces i've written x markdown
-
-
+Just a playground for writing and Markdown to mesh (because the latter is amazing for editing!!)
