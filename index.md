@@ -3,9 +3,9 @@
 ![me](IMG_0439.png)
 
 # m. a. shey
-## writer & programmer
+writer & programmer
 
-currently at the university of toronto, pursuing a CS major, 
+currently at the university of toronto pursuing a CS major, 
 and statistics and professional writing & communication (pwc) minors.
 
 
