@@ -1,18 +1,18 @@
 
 <ins> ark </ins> 
 
-            water dances.
-            it surges into salt and foam to marry them
-                creates freshwater daughter lake and loch
-            it  s n a k e s  through  g r i t  and  s o i l  to hungry roots,
-                glides down glasses forged from seaworn sand,
-            and presses earthbound 'gain through faucet ducts.
+water dances.
+it surges into salt and foam to marry them
+    creates freshwater daughter lake and loch
+it  s n a k e s  through  g r i t  and  s o i l  to hungry roots,
+    glides down glasses forged from seaworn sand,
+and presses earthbound 'gain through faucet ducts.
 
-            water drowns.
-            a flood does not discriminate
-                stops not for child nor critter
-            the best, distressed, obsessed, and all the rest
-                are just another in the scorning eyes of mother
+water drowns.
+a flood does not discriminate
+    stops not for child nor critter
+the best, distressed, obsessed, and all the rest
+    are just another in the scorning eyes of mother
 
         
 
