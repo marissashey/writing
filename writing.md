@@ -18,8 +18,7 @@
             the best, distressed, obsessed, and all the rest
                 are just another in the scorning eyes of M)other.
 
-            - - - 
-
+        
 
 # <ins> qianhai bay </ins>
 
@@ -39,8 +38,8 @@
             boy lines the street with shavings
             boy is the crowd favorite
 
-            ''ni kan ta you duo e du--
-            look how vicious he is!''
+            "ni kan ta you duo e du--
+            look how vicious he is!"
 
             the old man smiles toothily
             i line up at his truck
@@ -53,5 +52,5 @@
             smiling, sunburnt, satisfied
             
             
-            - - - 
+
 
