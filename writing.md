@@ -1,11 +1,7 @@
 ## contents 
 
-poetry <br/>
 0. [ark](#ark)
 1. [qianhai bay](#qianhaibay)
-
-ESSAYS: 
-coming soon :) 
 
 # <ins> ark </ins> 
 
