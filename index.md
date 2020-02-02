@@ -10,7 +10,7 @@ and statistics and professional writing & communication (pwc) minors.
   [my writing](writing.md)
             
 * and 
- [go back](http://github.com/tapiocabub) to github for code.
+ [go back](http://github.com/tapiocabub) to github for more code.
 
            
            
