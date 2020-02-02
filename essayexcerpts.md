@@ -25,6 +25,10 @@
    For weeks, my brother and I chuck shaved, store-bought coconuts onto the paved sidewalk after our parents leave for work. When the skulls crack enough for milk to spill down the sides, we peel back the plastic wrap, slurp up the liquid inside, give the meat a quick rinse, and dig in. Dad catches on quickly after coming home to coconut husks and plastic littered across the pavement of our gated community, Mom tries to switch us over to Vita Coco, and, just like that, with the taste of wind and salt and coconut still on our tongues, we settle back into life in the city.
 
 
+.
+.
+.
+
 
 
 <ins> the wilhelm scream</ins>
