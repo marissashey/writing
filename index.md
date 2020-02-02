@@ -1,6 +1,6 @@
 
 
-![image](files/Users/mika/Desktop/IMG_0439)
+![image](files/Users/mika/Desktop/IMG_0439.JPEG)
 
 # m. a. shey
 ## writer & programmer
