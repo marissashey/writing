@@ -1,10 +1,9 @@
 ## contents 
 
-0. [poetry](#poetry)
-1. [essays](#essays)
+0. [ARK](#ark)
+1. [QIANHAI BAY](#qianhai bay)
 
-# poetry
-            01) ark
+# <ins> ark </ins> 
 
             water dances.
             it surges into salt + foam to marry th=m
@@ -19,10 +18,10 @@
             the best, distressed, obsessed, and all the rest
                 are just another in the scorning eyes of M)other.
 
+            - - - 
 
 
-
-            02) qianhai bay
+# <ins> qianhai bay </ins>
 
             down a path of trees and beach umbrellas
             a man and a boy sell coconuts
@@ -52,7 +51,8 @@
             and fashions spoon from shell
             i drift off, scooping meat to mouth,
             smiling, sunburnt, satisfied
+            
+            
+            - - - 
 
-
-# essays 
-coming soon :) 
+more coming soon :) 
