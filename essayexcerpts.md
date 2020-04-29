@@ -2,13 +2,15 @@
 <ins> vita coco </ins>
 
 
-   “小心!” My mom darts out to grab my arm as I skim the curb of the sidewalk. A truck roars past.
+   “小心!” My mom darts out to grab my arm. A truck roars past.
 
-   “I wasn’t going to walk, you know.” The light turns green. Shenzhen's streets are littered with crumpled newspapers, fast food wrappers, and cigarette butts. Just as quickly as they are discarded, these articles of pedestrian life are flattened by jelly slippers, Nike sneakers, polished loafers, and motorbikes rattling on and off the sidewalks, swerving wildly to avoid even wilder taxi drivers and trucks.
+   “I wasn’t going to walk, you know.” I was skimming the sidewalk, but on it just the same. 
+   
+   Shenzhen's streets are littered with crumpled newspapers, fast food wrappers, and cigarette butts. Just as quickly as they are discarded, these articles of pedestrian life are flattened by jelly slippers, Nikes and Nike knockoffs, and motorbikes rattling on and off the sidewalks, swerving wildly to avoid even wilder taxi drivers and trucks.
 
-   It's a late July Sunday when the family agreed we could all do with some time from the cloying congestion of the city. The bay beckoned. 
+   It is a Sunday in late July when my aunt suggested we get away from the cloying congestion of the city. The bay beckoned, I suppose, but also the internet was down. My brother and I agreed.
 
-   My mother’s vice grip on my forearm loosens only when we descend the subway entrance and enter the white-tiled underground, which, unlike the city above, is spotless. Two uniformed men stand guard and watch us place our bags on the baggage scanner. They give the picnic basket a cursory glance but spend longer inspecting Dad’s work briefcase. Then, they wave us through the security check and further into the station. Dad produces four subway tokens that send us past the turnstiles and to the main train platform. Men and women in crisp work clothes part briskly around us, eyes glazed.
+   My mother’s hand drops from my forearm only when we descend the subway stairs and enter white-tiled underground. Two uniformed men stand guard and watch us place our bags on the baggage scanner. They give the picnic basket a cursory glance but spend longer inspecting Dad’s work briefcase. Then, they wave us through the security check and further into the station. Dad produces four subway tokens that send us past the turnstiles and to the main train platform. Men and women in crisp work clothes part briskly around us, eyes glazed.
 
    “孩子们, do you know how to read the subway map?” Dad’s voice booms as he points to an overhead sign in the train car. Eyes flick off their phones and onto us. 
 
