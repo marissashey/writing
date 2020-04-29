@@ -12,8 +12,3 @@
    She is old people traipsing about, killing time, 
    with pure-bred dogs unleashed ahead, 9pm bedtimes, and discreet shirts and shoes 
    whispering wealth more loudly than any scream. 
-
-
-.
-.
-.
