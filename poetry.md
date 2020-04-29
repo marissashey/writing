@@ -1,6 +1,6 @@
 
 
-<ins> ark </ins> 
+<ins> no us ark </ins> 
 
     water dances.
     it surges into salt and foam to marry them
@@ -17,7 +17,7 @@
 
         
 
-<ins> i will go back someday </ins>
+<ins> skull crazy </ins>
 
             down a path of trees and beach umbrellas
             a man and a boy sell coconuts
