@@ -11,4 +11,4 @@
    kempt trees, wine and cheese above groceries, and fifth-rate sushi.  <br>
    she is old people traipsing about, killing time,  <br>
    pure-bred dogs unleashed ahead, with 9pm bedtimes and discreet shirts and shoes  <br>
-   that whisper wealth more loudly than any scream.  <br>
+   that whisper wealth louder than any scream.  <br>
