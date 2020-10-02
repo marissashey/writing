@@ -1,6 +1,6 @@
 
 
-<ins> no us ark </ins> 
+<ins> of naamah </ins> 
 
     water dances.
     it surges into salt and foam to marry them
